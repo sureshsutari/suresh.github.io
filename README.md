@@ -1,2 +1,0 @@
-# suresh.github.io
-suresh
